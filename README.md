@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on applying for cybersecurity programs around the world.t<br>⚡ Fun fact: I love plaing Chess.
+🔭 I’m currently working on applying for cybersecurity programs around the world<br>⚡ Fun fact: I love plaing Chess.
 
 
 ## 🌐 Socials:
